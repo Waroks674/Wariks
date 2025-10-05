@@ -1,2 +1,2 @@
-# Wariks
-Komrn
+# Waroks
+Komen
